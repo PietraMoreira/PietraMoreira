@@ -1,4 +1,5 @@
-### Olá, Boas vindas ao meu perfil 🥀🥀
+### Olá, Boas vindas ao meu perfil ![](https://media.tenor.com/uZPM-p8lnuYAAAAi/cute.gif)
+
 
 Meu nome é Pietra Moreira Bernardino Hallai 
 
@@ -8,6 +9,6 @@ Meu nome é Pietra Moreira Bernardino Hallai
 
   ### Você pode entrar em contato comigo 📫
 
-  moondropersun@gmail.com
 
-  ![](https://media1.tenor.com/m/nSeXvWhdjPEAAAAC/pochacco-happy.gif)
+
+ 
